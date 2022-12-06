@@ -3,12 +3,15 @@
 # Abilities
 
 # History
-[[The Songbirds Program]]
+
 # Relationships
-[[Erica Gray]]
-[[Douglas Q. Andersen]]
-[[Stretch]]
-[[Gideon the Red]]
+[[Danielle 'Mirage' Porter]]
+[[Aitne Odhran]]
+[[Nevaeh Raynor]]
+[[Oliver Oakley]]
+[[Doyle Vance]]
+[[Vegas Jack]]
+[[Igasho]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

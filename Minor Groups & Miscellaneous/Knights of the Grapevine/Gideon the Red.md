@@ -3,12 +3,13 @@
 # Abilities
 
 # History
-[[The Songbirds Program]]
+
 # Relationships
-[[Erica Gray]]
+[[Nevaeh Raynor]]
 [[Douglas Q. Andersen]]
-[[Stretch]]
-[[Gideon the Red]]
+[[Aitne Odhran]]
+[[Doyle Vance]]
+
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

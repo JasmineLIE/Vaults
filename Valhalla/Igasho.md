@@ -3,12 +3,15 @@
 # Abilities
 
 # History
-[[The Songbirds Program]]
+
 # Relationships
-[[Erica Gray]]
-[[Douglas Q. Andersen]]
-[[Stretch]]
-[[Gideon the Red]]
+[[Run-For-Your-Life]]
+[[Gorgeous Candor]]
+[[D'Artagnan Lavelyan]]
+[[Connie 'Spectrum' Grant]]
+[[The Mighty Five]]
+[[Hotshot]]
+
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

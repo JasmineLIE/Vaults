@@ -3,7 +3,9 @@
 # Abilities
 
 # History
+[[Aitne Odhran's Arrival]]
 [[High Queen Metasequioa]]
+[[The Death of Judas]]
 # Relationships
 [[Aitne Odhran]]
 [[Twylla Odhran]]

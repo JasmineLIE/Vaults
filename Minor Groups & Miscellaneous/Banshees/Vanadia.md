@@ -3,12 +3,10 @@
 # Abilities
 
 # History
-[[The Songbirds Program]]
+
 # Relationships
-[[Erica Gray]]
-[[Douglas Q. Andersen]]
-[[Stretch]]
-[[Gideon the Red]]
+## [[Florentine]]
+* Once dated. Ended peacefully.
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

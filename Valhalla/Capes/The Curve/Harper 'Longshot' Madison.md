@@ -3,12 +3,12 @@
 # Abilities
 
 # History
-[[The Songbirds Program]]
+
 # Relationships
-[[Erica Gray]]
-[[Douglas Q. Andersen]]
-[[Stretch]]
-[[Gideon the Red]]
+[[The Curve]]
+[[Trinity]]
+[[Josiah Wake]]
+
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

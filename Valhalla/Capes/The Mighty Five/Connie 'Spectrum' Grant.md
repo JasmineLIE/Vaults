@@ -3,12 +3,13 @@
 # Abilities
 
 # History
-[[The Songbirds Program]]
+
 # Relationships
-[[Erica Gray]]
-[[Douglas Q. Andersen]]
-[[Stretch]]
-[[Gideon the Red]]
+[[Rhianna 'Quarterback' Stone]]
+[[The Mighty Five]]
+[[Hotshot]]
+[[Justice]]
+
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration
