@@ -4,6 +4,7 @@
 # History
 
 # Relationships
+## [[King Morgan 'Arthur' Le Fey]]
 ## [[Merlin Weather]]
 ## [[Run-For-Your-Life]]
 ## [[Uriyah Zidan]]
