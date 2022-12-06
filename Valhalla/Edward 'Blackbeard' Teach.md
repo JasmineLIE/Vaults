@@ -3,9 +3,12 @@
 # Abilities
 
 # History
-[[Oliver Oakley]]
+[[The First Harvest]]
 # Relationships
-
+[[Erica Gray]]
+[[Tekton]]
+[[James "John" Solomons]]
+[[Tevis Gray]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

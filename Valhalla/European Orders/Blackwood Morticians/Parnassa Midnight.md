@@ -3,9 +3,9 @@
 # Abilities
 
 # History
-[[Oliver Oakley]]
 # Relationships
-
+[[Alexander 'Power-Up' Phillips]]
+[[Florentine]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

@@ -3,9 +3,10 @@
 # Abilities
 
 # History
-[[Oliver Oakley]]
+[[Knights of the Red Letter]]
 # Relationships
-
+[[Laloon]]
+[[Frontiersmen]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

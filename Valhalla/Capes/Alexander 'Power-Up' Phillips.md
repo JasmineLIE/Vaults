@@ -3,9 +3,12 @@
 # Abilities
 
 # History
-[[Oliver Oakley]]
 # Relationships
-
+[[Run-For-Your-Life]]
+[[Laloon]]
+[[Trinity]]
+[[Parnassa Midnight]]
+[[Walk-of-Fame]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

@@ -1,0 +1,1 @@
+She was the sibling of [[Urm]] and [[Nugammon]] until the assault on her hives, whereupon she killed herself by consuming the hearts of her Gargoyle adversaries, becoming [[Lilith]].

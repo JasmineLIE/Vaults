@@ -3,9 +3,13 @@
 # Abilities
 
 # History
-[[Oliver Oakley]]
-# Relationships
 
+# Relationships
+[[Nadia Temurhad]]
+[[White Lotus]]
+[[Cassidy Shaw]]
+[[Aitne Odhran]]
+[[Aster Galileo]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration
