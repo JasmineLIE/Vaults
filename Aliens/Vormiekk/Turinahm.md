@@ -3,10 +3,10 @@
 # Abilities
 
 # History
-
+[[Vormiekk Assault on Yggdrasil]]
 # Relationships
+[[Thürexx]]
 
 # Connections To Plot / Current Goals
 
-# Reference Images / Visual InspirationRelationships
-## [[Lovely 'Galahad' Weather]]
+# Reference Images / Visual Inspiration

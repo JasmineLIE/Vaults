@@ -5,11 +5,8 @@
 # History
 
 # Relationships
-[[Run-For-Your-Life]]
-[[Josiah Wake]]
-[[Douglas Q. Andersen]]
-[[Kaneko Torashirou]]
-[[Anton Kozak]]
+## [[Florentine]]
+* Once dated. Ended peacefully.
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

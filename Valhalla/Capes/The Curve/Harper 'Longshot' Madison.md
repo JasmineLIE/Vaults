@@ -5,11 +5,10 @@
 # History
 
 # Relationships
-[[Run-For-Your-Life]]
+[[The Curve]]
+[[Trinity]]
 [[Josiah Wake]]
-[[Douglas Q. Andersen]]
-[[Kaneko Torashirou]]
-[[Anton Kozak]]
+
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

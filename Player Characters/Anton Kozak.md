@@ -3,11 +3,10 @@
 # Abilities
 
 # History
-
+[[The Wandering Wraith]]
 # Relationships
-[[Aitne Odhran]]
-[[Sol Odhran]]
 
 # Connections To Plot / Current Goals
 
-# Reference Images / Visual Inspiration
+# Reference Images / Visual InspirationRelationships
+## [[Lovely 'Galahad' Weather]]

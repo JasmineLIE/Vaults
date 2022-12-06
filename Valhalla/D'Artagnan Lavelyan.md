@@ -5,11 +5,13 @@
 # History
 
 # Relationships
-[[Run-For-Your-Life]]
-[[Josiah Wake]]
-[[Douglas Q. Andersen]]
-[[Kaneko Torashirou]]
-[[Anton Kozak]]
+[[Danielle 'Mirage' Porter]]
+[[Aitne Odhran]]
+[[Nevaeh Raynor]]
+[[Oliver Oakley]]
+[[Doyle Vance]]
+[[Vegas Jack]]
+[[Igasho]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

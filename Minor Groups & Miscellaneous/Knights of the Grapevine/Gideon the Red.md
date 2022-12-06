@@ -5,11 +5,11 @@
 # History
 
 # Relationships
-[[Run-For-Your-Life]]
-[[Josiah Wake]]
+[[Nevaeh Raynor]]
 [[Douglas Q. Andersen]]
-[[Kaneko Torashirou]]
-[[Anton Kozak]]
+[[Aitne Odhran]]
+[[Doyle Vance]]
+
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

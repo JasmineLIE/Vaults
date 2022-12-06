@@ -5,11 +5,11 @@
 # History
 
 # Relationships
-[[Run-For-Your-Life]]
-[[Josiah Wake]]
-[[Douglas Q. Andersen]]
-[[Kaneko Torashirou]]
-[[Anton Kozak]]
+[[Rhianna 'Quarterback' Stone]]
+[[The Mighty Five]]
+[[Hotshot]]
+[[Justice]]
+
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration
