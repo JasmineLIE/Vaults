@@ -2,7 +2,7 @@ Birthed from the [[Ladies Of The Lake]] certain branch of magic, Vivaines are th
 
 Vivaines came before their Earthly, mundane rose counterparts.  The Ladies would give Vivaines to kind hearted travellers as tokens of protection and fortune.  The Vivaines wilted outside of Avalon, but from their compost came roses.
 
-After [[King Morgan 'Arthur' Le Fey]] slew the Ladies and seized Avalon, the Vivaines dulled in her presence, harbouring nightmarish magicks and properties instead.  Once they grew because of the Ladies’ love, now they grow by their everlasting pain.
+After [[King Morgan 'Arthur' La Faye]] slew the Ladies and seized Avalon, the Vivaines dulled in her presence, harbouring nightmarish magicks and properties instead.  Once they grew because of the Ladies’ love, now they grow by their everlasting pain.
 
 **RED** 
 Of love and admiration. A standard healing flower.  Gifted to mortals by the Ladies who travelled near and far for their aid.

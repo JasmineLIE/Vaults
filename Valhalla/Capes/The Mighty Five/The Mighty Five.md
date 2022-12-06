@@ -5,3 +5,4 @@ Members
 [[Amy 'Mothwoman' Peyton]]
 [[Dexter Domino]]
 [[Mashinranbu]]
+[[Igasho]] (Formerly)

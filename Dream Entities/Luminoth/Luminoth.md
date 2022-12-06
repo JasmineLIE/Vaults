@@ -1,6 +1,8 @@
 [[The Leviathan]]
 [[The Behemoth]]
 [[Laloon]]
+[[Karyll]]
+[[Caracen]]
 [[Karakayenne]]
 [[The Luminoth King]]
 [[Dream Entities]]

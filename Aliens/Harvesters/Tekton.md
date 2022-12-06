@@ -3,7 +3,7 @@
 # Abilities
 
 # History
-
+[[The First Harvest]]
 # Relationships
 [[Edward 'Blackbeard' Teach]]
 [[Lycos]]

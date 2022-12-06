@@ -5,7 +5,7 @@
 # History
 
 # Relationships
-## [[King Morgan 'Arthur' Le Fey]]
+## [[King Morgan 'Arthur' La Faye]]
 ## [[Lovely 'Galahad' Weather]]
 
 # Connections To Plot / Current Goals

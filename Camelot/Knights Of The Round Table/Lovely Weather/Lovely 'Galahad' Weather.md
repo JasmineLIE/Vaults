@@ -35,8 +35,8 @@ Galahad excelled.  Quickly rising through the ranks and exceeding Morgan’s ex
 Lovely breaks free for the first time by refusing to drink from the Holy Grail.  Merlin places him under a sleep spell to protect him and the location of the Grail from Arthur.  He is announced dead, illustrated by Merlin to have died after drinking from the cup to further dissuade Arthur from pursuing it.
 
 # Relationships
-## [[King Morgan 'Arthur' Le Fey]]
-+ Lovely is fearful of [[King Morgan 'Arthur' Le Fey]].  In recent times has he just realized the extend of Morgan's manipulation, and the weight of the crimes he committed in her name.   While he is prepared to join the cause to kill her, his heart will never be truly in it.
+## [[King Morgan 'Arthur' La Faye]]
++ Lovely is fearful of [[King Morgan 'Arthur' La Faye]].  In recent times has he just realized the extend of Morgan's manipulation, and the weight of the crimes he committed in her name.   While he is prepared to join the cause to kill her, his heart will never be truly in it.
 + Before, Galahad respected his King.  He admired her ambition, and having known nothing else than be a good knight, he did what was asked of him.  This includes finding the Grail.  It was only later down the line did Galahad begin to question his majesty's commands.  His first choice ever made by his own; *denying to drink from the Holy Grail*.
 ## [[Merlin Weather]]
 + Lovely adores his father, [[Merlin Weather]], but part of him is also betrayed.  He understands why Merlin did what he did-- entombing him in an enternal sleep, and the things done for Arthur-- but he wishes to have had a say.
