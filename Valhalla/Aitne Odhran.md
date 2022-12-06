@@ -3,12 +3,14 @@
 # Abilities
 
 # History
+[[Galanova]]
 [[Aitne Odhran's Arrival]]
 # Relationships
 [[Sol Odhran]]
 [[Cordelia Odhran]]
 [[Lucina Odhran]]
 [[Jericho]]
+[[Benjamin Stanley Mathers]]
 [[Nevaeh Raynor]]
 [[Tipper]]
 [[Loki]]
@@ -25,7 +27,7 @@
 [[Doyle Vance]]
 [[Mercedes Covenant]]
 [[Scott Locke]]
-[[Logan Trevors]]
+[[Logan Scythia Trevors]]
 [[Sebastian]]
 [[Gideon the Red]]
 [[The Mads]]

@@ -3,15 +3,17 @@
 # Abilities
 
 # History
+[[Galanova]]
 [[Aitne Odhran's Arrival]]
 [[High Queen Metasequioa]]
 [[The Death of Judas]]
 # Relationships
+[[Santiago Platt]]
 [[Aitne Odhran]]
 [[Twylla Odhran]]
 [[Cordelia Odhran]]
 [[Lucina Odhran]]
-[[Perry]]
+[[Periwinkle 'Perry']]
 [[Cassidy Shaw]]
 [[Nevaeh Raynor]]
 [[Florentine]]
@@ -21,9 +23,10 @@
 [[Anton Kozak]]
 [[Iris (Relic Dancer)]]
 [[Kaede Yasuda]]
-[[Logan Trevors]]
+[[Logan Scythia Trevors]]
 [[Solarian]]
 [[Rebel Hanuko]]
+[[Mercedes Covenant]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

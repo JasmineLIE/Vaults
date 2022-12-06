@@ -1,7 +1,6 @@
 [[The Leviathan]]
 [[The Behemoth]]
 [[Laloon]]
-[[Karakayenne]]
+[[Twylla Odhran]]
 [[The Luminoth King]]
 [[Dream Entities]]
-[[Necrovoan]]

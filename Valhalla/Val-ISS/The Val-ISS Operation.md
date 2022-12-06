@@ -1,6 +1,6 @@
 # Members
 + [[Castor Crawford]]
-+ [[Logan Trevors]]
++ [[Logan Scythia Trevors]]
 + [[Sol Odhran]] 
 + [[Nevaeh Raynor]]
 + [[Martholomew 'Marty' McKnight]]

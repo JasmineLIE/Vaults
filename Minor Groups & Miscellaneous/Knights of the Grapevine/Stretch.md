@@ -3,12 +3,11 @@
 # Abilities
 
 # History
-[[The First Harvest]]
+[[Knights of the Red Letter]]
 # Relationships
-[[Erica Gray]]
-[[Tekton]]
-[[James 'John' Solomons]]
-[[Tevis Gray]]
+[[Douglas Q. Andersen]]
+[[Cherche Winters]]
+[[Gideon the Red]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

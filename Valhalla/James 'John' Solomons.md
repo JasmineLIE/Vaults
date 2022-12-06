@@ -5,8 +5,12 @@
 # History
 
 # Relationships
-[[Aitne Odhran]]
-[[Sol Odhran]]
+[[Artemisia of Chronopolis]]
+[[Cherche Winters]]
+[[Erica Gray]]
+[[Dullahan]]
+[[Tevis Gray]]
+[[Serekk]]
 
 # Connections To Plot / Current Goals
 

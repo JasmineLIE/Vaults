@@ -4,15 +4,19 @@
 
 # History
 [[The Yellowstone Rebellion]]
-[[Knights of the Red Letter]]
+[[Knights of the Frost]]
+[[Blackwood Morticians]]
 # Relationships
 [[Doyle Vance]]
 [[Erica Gray]]
 [[Douglas Q. Andersen]]
-[[Josiah Wake]]
-[[Wayne Redgrave]]
-[[Adelaide Cassius Modarian]]
+[[Marcus Thorn]]
+[[Aitne Odhran]]
+[[Dullahan]]
+[[Venghyr]]
 [[Morgan the Merciful]]
+[[Mercedes Covenant]]
+[[Kaede Yasuda]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual InspirationRelationships

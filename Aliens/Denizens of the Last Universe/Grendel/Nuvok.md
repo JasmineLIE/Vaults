@@ -1,6 +1,7 @@
 ## Appearances
 [[The Cycle of Woe Part I]]
 [[The Cycle of Woe Part II]]
+
 ## The Cycle of Woe
 
 Nuvok is the son of Nugammon. Though it is not so much a biological connection as it is 'chosen,' Nugammon very much adored him and taught all that he knew to young Nuvok.
