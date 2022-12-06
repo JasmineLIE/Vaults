@@ -3,11 +3,11 @@
 # Abilities
 
 # History
-
+[[The Luminoth King]]
 # Relationships
-[[Edward 'Blackbeard' Teach]]
-[[Lycos]]
-
+[[Thürexx]]
+[[Laloon]]
+[[The Luminoth King]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration
