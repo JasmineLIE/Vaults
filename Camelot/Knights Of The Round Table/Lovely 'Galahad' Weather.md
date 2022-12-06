@@ -1,1 +1,0 @@
-> Lovely 'Galahad' Weather
