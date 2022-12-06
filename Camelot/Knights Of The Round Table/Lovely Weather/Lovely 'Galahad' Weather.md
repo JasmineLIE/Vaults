@@ -4,7 +4,7 @@
 
 
 # Abilities
-+ Lovely's true power comes from his Helmet. Bestowed upon him by Nimue, it contained the last Vivaines untainted by Arthur.  Ergo, the last remnants of the Ladies' souls that were not stolen by Arthur.
++ Lovely's true power comes from his Helmet. Bestowed upon him by Nimue, it contained the last [[Vivaines]] untainted by Arthur.  Ergo, the last remnants of the Ladies' souls that were not stolen by Arthur.
 + He was trained by Gawain, having mastered an array of weapons.  His preferred being the lance.
 + Wearing the helmet gives Lovely the following
 	+ The flower petals flood out, fashioning his armour and providing him his halberd.

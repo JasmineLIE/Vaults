@@ -9,6 +9,7 @@
 [[Cherche Winters]]
 [[Josiah Wake]]
 [[Memphis]]
+[[Hotshot]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration
