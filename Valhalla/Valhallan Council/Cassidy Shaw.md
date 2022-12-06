@@ -3,7 +3,6 @@
 # Abilities
 
 # History
-[[The Luminoth King]]
 # Relationships
 [[Zephyr]]
 [[Doyle Vance]]

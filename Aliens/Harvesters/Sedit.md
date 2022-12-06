@@ -3,7 +3,7 @@
 # Abilities
 
 # History
-[[Gargoyles]]
+[[Vaults/Aliens/Denizens of the Last Universe/Gargoyles/Gargoyle]]
 # Relationships
 
 
