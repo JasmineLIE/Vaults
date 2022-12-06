@@ -3,13 +3,12 @@
 # Abilities
 
 # History
-
+[[Vormiekk Assault on Yggdrasil]]
+[[Silent Banner-Frontiersmen Conflicts]]
 # Relationships
-[[Run-For-Your-Life]]
-[[Josiah Wake]]
-[[Douglas Q. Andersen]]
-[[Kaneko Torashirou]]
-[[Anton Kozak]]
+[[Thürexx]]
+[[Silent Banner]]
+
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

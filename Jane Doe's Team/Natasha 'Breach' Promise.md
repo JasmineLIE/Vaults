@@ -5,7 +5,8 @@
 # History
 
 # Relationships
-
+[[Josiah Wake]]
+[[Jane Doe]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

@@ -3,13 +3,10 @@
 # Abilities
 
 # History
-
+[[Vormiekk Assault on Yggdrasil]]
 # Relationships
-[[Run-For-Your-Life]]
-[[Josiah Wake]]
-[[Douglas Q. Andersen]]
-[[Kaneko Torashirou]]
-[[Anton Kozak]]
+[[Thürexx]]
+
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

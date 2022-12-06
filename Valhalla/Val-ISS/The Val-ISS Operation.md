@@ -3,5 +3,5 @@
 + [[Logan Trevors]]
 + [[Sol Odhran]] 
 + [[Nevaeh Raynor]]
-+ [[Marty McKnight]]
++ [[Martholomew 'Marty' McKnight]]
 + [[Scott Locke]]

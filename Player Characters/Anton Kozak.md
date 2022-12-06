@@ -3,7 +3,7 @@
 # Abilities
 
 # History
-
+[[The Wandering Wraith]]
 # Relationships
 
 # Connections To Plot / Current Goals

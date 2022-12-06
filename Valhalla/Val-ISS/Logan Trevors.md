@@ -5,6 +5,8 @@
 # History
 
 # Relationships
+[[Aitne Odhran]]
+[[Sol Odhran]]
 
 # Connections To Plot / Current Goals
 
