@@ -3,10 +3,16 @@
 # Abilities
 
 # History
-[[The Harvests]]
+[[Alamo Few]]
+[[Bulldogs]]
+[[Battle of the Alamo]]
+[[Wickerman]]
+[[Marcus Thorn]]
+[[Dervish]]
+[[Las Vegas]]
+[[Maddox]]
+[[Vegas Jack]]
 # Relationships
-[[Edward 'Blackbeard' Teach]]
-[[Lycos]]
 
 # Connections To Plot / Current Goals
 

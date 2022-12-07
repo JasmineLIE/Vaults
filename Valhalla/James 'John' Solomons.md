@@ -11,6 +11,7 @@
 [[Dullahan]]
 [[Tevis Gray]]
 [[Serekk]]
+[[Fiona 'Cleo' Lionheart]]
 
 # Connections To Plot / Current Goals
 

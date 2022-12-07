@@ -3,7 +3,7 @@
 # Abilities
 
 # History
-[[The First Harvest]]
+[[The Harvests]]
 # Relationships
 [[Erica Gray]]
 [[Tekton]]
