@@ -3,10 +3,10 @@
 # Abilities
 
 # History
-[[The Trevors Family]]
+## [[The Trevors Family]]
 # Relationships
-[[Aitne Odhran]]
-[[Sol Odhran]]
+## [[Aitne Odhran]]
+## [[Sol Odhran]]
 
 # Connections To Plot / Current Goals
 

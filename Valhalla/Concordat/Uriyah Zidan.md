@@ -5,8 +5,11 @@
 # History
 
 # Relationships
-## [[Lovely 'Galahad' Weather]]
 ## [[Cassidy Shaw]]
+## [[Lovely 'Galahad' Weather]]
+## [[Run-For-Your-Life]] 
+## [[Yareakh 'Ironbreaker' Odeh]]
+
 
 # Connections To Plot / Current Goals
 

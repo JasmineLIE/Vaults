@@ -6,6 +6,7 @@
 
 # Relationships
 [[Nadia Temurhad]]
+[[Cherche Winters]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration
