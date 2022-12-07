@@ -28,4 +28,4 @@ It certainly doesn't help that an Obsidian sculpture of a beautiful women whispe
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration
-![[Pasted image 20221207125111.png]]
+![[Pasted image 20221207125111.png]]![[Pasted image 20221207133348.png]]
