@@ -1,4 +1,4 @@
-The Platts were a  [[Pre-Dreamscourge]] family.
+The Platts were a [[Pre-Dreamscourge]] family.
 
 [[Luca Platt]]
 [[Santiago Platt]]

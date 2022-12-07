@@ -1,4 +1,6 @@
-[[Galanova]]
+The Odhrans were a [[Pre-Dreamscourge]] family.
+
+Founders of [[Galanova]].
 
 [[Cordelia Odhran]]
 [[Lucina Odhran]]

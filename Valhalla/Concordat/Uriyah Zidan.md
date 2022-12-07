@@ -6,6 +6,7 @@
 
 # Relationships
 ## [[Lovely 'Galahad' Weather]]
+## [[Cassidy Shaw]]
 
 # Connections To Plot / Current Goals
 

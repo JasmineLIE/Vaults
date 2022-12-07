@@ -33,6 +33,7 @@
 [[The Mads]]
 [[Eakarn]]
 [[Byron Tammerce]]
+[[Temperance 'Constance' Chandler]]
 
 # Connections To Plot / Current Goals
 

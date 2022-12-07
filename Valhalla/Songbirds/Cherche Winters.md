@@ -3,8 +3,11 @@
 # Abilities
 
 # History
+She was once in the employ of [[Galanova]].
+
 [[The Songbirds Program]]
 # Relationships
+[[Pazmina Merrin]]
 [[Erica Gray]]
 [[Douglas Q. Andersen]]
 [[Stretch]]
