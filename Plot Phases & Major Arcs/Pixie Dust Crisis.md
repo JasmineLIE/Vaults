@@ -1,0 +1,1 @@
+[[Lucky Danger]] and [[Victoria 'Strongarm' Blanquet]] attempted to learn more about the code, but [[Lucky Danger]] was ultimately killed by [[Texas Ten Gallon]].
