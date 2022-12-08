@@ -1,0 +1,1 @@
+>Consisting of [[Stormi Valentine]], [[Lovely 'Galahad' Weather]], and [[Alba Stand]], the Shattered Throne are the growing resistance against [[King Morgan 'Arthur' La Faye]].   Their formation was pushed by [[Merlin Weather]] behind the scenes, having directed Alba to Stormi, the last Arbalester
