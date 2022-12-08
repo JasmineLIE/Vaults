@@ -1,0 +1,1 @@
+The [[Luminoth]] on Ariel was only known to be a victim of [[Byron Tammerce]].

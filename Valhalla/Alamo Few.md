@@ -1,7 +1,7 @@
 Members at peak included:
 
 [[Happy Appomattox]] (Leader)
-[[Vegas Jack]]
+[[Vegas 'Silas Wilde' Jack]]
 [[Marcus Thorn]]
 [[Wickerman]]
 [[Maddox]]

@@ -14,6 +14,9 @@
 [[Wickerman]]
 [[Cherche Winters]]
 [[Sol Odhran]]
+## Silas Wilde
+
+[[Lectro Vipers]] [[Arizona Hangmen]]
 # Relationships
 ## [[Loki]]
 - 

@@ -1,4 +1,4 @@
-[[Vegas Jack]]
+[[Vegas 'Silas Wilde' Jack]]
 [[Florentine]]
 [[Douglas Q. Andersen]]
 [[D'Artagnan Lavelyan]]

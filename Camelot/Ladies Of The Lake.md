@@ -1,0 +1,1 @@
+Succeeded by the [[Arbalesters]].

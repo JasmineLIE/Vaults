@@ -1,0 +1,1 @@
+[[Florentine]]'s true best friend and mount, a [[Griffin]] he raised from birth.

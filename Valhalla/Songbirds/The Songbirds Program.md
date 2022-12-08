@@ -7,6 +7,6 @@ Their first mission was to kill [[Memphis]].
 - [[Hotshot]]
 - [[Josiah Wake]]
 - [[Cobalt]] (Formerly)
-- [[Vegas Jack]] (Formerly)
+- [[Vegas 'Silas Wilde' Jack]] (Formerly)
 - [[Tony Calavera]] (Formerly)
 - [[Ryoko]] (Formerly)

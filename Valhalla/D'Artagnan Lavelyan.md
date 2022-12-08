@@ -12,7 +12,7 @@ They were present at the [[Yellowstone Rebellion]]
 [[Nevaeh Raynor]]
 [[Oliver Oakley]]
 [[Doyle Vance]]
-[[Vegas Jack]]
+[[Vegas 'Silas Wilde' Jack]]
 [[Igasho]]
 # Connections To Plot / Current Goals
 
