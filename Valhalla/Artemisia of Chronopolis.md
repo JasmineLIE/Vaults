@@ -6,7 +6,6 @@
 [[Dullahan]]
 [[Lilith]]
 [[Loki]]
-[[King Morgan 'Arthur' La Faye]]
 [[White Lotus]]
 [[Bellona]]
 [[Empress Hypatia, the Gorgon Queen]]
