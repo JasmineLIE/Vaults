@@ -21,3 +21,9 @@ Douglas met Reverb in [[TA10 - Living Gorgeous]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration
+
+# Appearances
+
+[[Session 0.5 - Stretch's Guide to Good Living]]
+[[TA07 - The Pilgrimage]]
+[[TA10 - Living Gorgeous]]

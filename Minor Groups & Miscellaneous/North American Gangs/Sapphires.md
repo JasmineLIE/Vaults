@@ -1,0 +1,1 @@
+One of many [[Gangs of North America]]. Led by [[Bonnie the Sapphire Queen]]. Absorbed into the [[New Union]].

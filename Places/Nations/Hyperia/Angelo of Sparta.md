@@ -1,0 +1,7 @@
+[[Florentine]]
+[[Erica Gray]]
+[[Doyle Vance]]
+[[Bellona]]
+[[Sons & Daughters of Angelo]]
+[[Hyperia]]
+[[Empress Hypatia, the Gorgon Queen]]

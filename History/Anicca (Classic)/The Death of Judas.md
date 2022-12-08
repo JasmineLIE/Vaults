@@ -1,0 +1,1 @@
+Characters present were [[Doyle Vance]], [[Logan Scythia Trevors]], [[Iris (Relic Dancer)]], [[Aitne Odhran]], [[Erica Gray]], [[Nevaeh Raynor]], and [[Gideon the Red]].

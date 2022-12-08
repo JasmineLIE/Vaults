@@ -1,0 +1,1 @@
+Friends with [[Meredith 'Merry' Odhran]]. Member of the [[Blackhearts]] gang. Goes to [[Thorn High School]] against her wishes.

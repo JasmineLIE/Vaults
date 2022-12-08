@@ -1,0 +1,1 @@
+A small settlement located in [[Toronto]] and the [[Eastern Ash Belt]] that came under attack by [[DuFont]] before [[Aitne Odhran]], [[Benjamin Stanley Mathers]], and [[Adelaide Cassius Modarian]] killed him. It consists of refugees from [[Flockton]].

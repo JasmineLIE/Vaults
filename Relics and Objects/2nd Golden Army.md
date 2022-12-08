@@ -1,0 +1,1 @@
+Unlike the [[1st Golden Army]], the 2nd Golden Army was created in a joint-effort by [[Luminotron]] and [[OzTech]]. Buried under [[Houston]].

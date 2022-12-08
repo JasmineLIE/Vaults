@@ -10,6 +10,15 @@
 [[Run-For-Your-Life]]
 [[Kaneko Torashirou]]
 [[Anton Kozak]]
+[[Uriyah Zidan]]
+[[Lovely 'Galahad' Weather]]
+[[Hotshot]]
+[[Lucky Danger]]
+[[Victoria 'Strongarm' Blanquet]]
+[[Igasho]]
+[[Brianna Bailey]]
+[[Alexander 'Power-Up' Phillips]]
+[[Trinity]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

@@ -1,0 +1,1 @@
+One of many [[Gangs of North America]]. Mammal-hunting poacher-cannibals. Local to [[Fjorda]].
