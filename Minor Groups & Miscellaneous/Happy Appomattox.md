@@ -11,7 +11,7 @@
 [[Dervish]]
 [[Las Vegas]]
 [[Maddox]]
-[[Vegas Jack]]
+[[Vegas 'Silas Wilde' Jack]]
 # Relationships
 
 # Connections To Plot / Current Goals

@@ -1,0 +1,1 @@
+Originally a form of plankton on a mysterious ocean world, the Vormiekk were forcibly evolved by the [[Nuuric]]. Were active participants in the [[Human-Nuuric War]].

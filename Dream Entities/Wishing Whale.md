@@ -1,0 +1,1 @@
+Yet another set of [[Dream Entities]]. They are one of the rarest, with only two ever having been confirmed to exist: the [[Nudibranch]], and [[Unknown Ganymede Wishing Whale]].

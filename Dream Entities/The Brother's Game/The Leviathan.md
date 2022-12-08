@@ -1,4 +1,4 @@
-[[Vegas Jack]]
+[[Vegas 'Silas Wilde' Jack]]
 [[Aitne Odhran]]
 [[The Behemoth]]
 [[Lycos]]
