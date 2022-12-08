@@ -13,6 +13,11 @@
 [[Anton Kozak]]
 [[Seethrough]]
 [[Cherche Winters]]
+## [[Gorgeous Candor]]
+Douglas' relations with Gorgeous are very positive, having met them during [[TA10 - Living Gorgeous]]. Gorgeous sees them as a fun old man and genuinely enjoys their somewhat venomous perspective on things.
+
+## [[Reverb 'R3V3RB']]
+Douglas met Reverb in [[TA10 - Living Gorgeous]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

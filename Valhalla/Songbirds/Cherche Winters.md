@@ -12,6 +12,7 @@ She was once in the employ of [[Galanova]].
 [[Douglas Q. Andersen]]
 [[Stretch]]
 [[Gideon the Red]]
+[[Felicia 'Sproing' Hammer]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

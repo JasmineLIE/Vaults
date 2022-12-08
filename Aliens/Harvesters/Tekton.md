@@ -1,5 +1,7 @@
 > Call out for basic synopsis and flavour text
 
+Tekton was the first ever [[Harvester]].
+
 # Abilities
 
 # History

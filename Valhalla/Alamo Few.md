@@ -8,4 +8,4 @@ Members at peak included:
 
 They were famous for fighting
 
-[[Dervish]] and [[The 1st Golden Army]]
+[[Dervish]] and [[1st Golden Army]]

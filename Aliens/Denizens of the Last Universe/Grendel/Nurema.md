@@ -11,4 +11,4 @@ In consuming the hundreds of hearts of her adversaries, she was overpowered by t
 
 ## Present Day
 
-Nurema, or Lilith, powers Yggdrasil with her energy. Since it weakens her, she can do nothing to break free, despite her efforts to convince [[Doyle Vance]] to listen to her.
+Nurema, or Lilith, powers Yggdrasil with her energy. Since it weakens her, she can do nothing to break free, despite her efforts to convince defectors to listen to her.

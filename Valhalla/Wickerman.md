@@ -7,7 +7,7 @@ Wickerman was a member of the [[Alamo Few]], alongside [[Maddox]], [[Vegas Jack]
 
 Later, they waged petty war against a religious einherjar tyrant named [[Dervish]].
 
-[[Las Vegas]] and the [[The 1st Golden Army]] were also one of the threats stopped by them.
+[[Las Vegas]] and the [[1st Golden Army]] were also one of the threats stopped by them.
 
 He was killed in Enclavia by [[Nadia Temurhad]] whilst he was in the employ of [[Memphis]].
 

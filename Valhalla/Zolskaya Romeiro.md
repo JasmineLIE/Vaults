@@ -3,15 +3,13 @@
 # Abilities
 
 # History
-[[The Yellowstone Rebellion]]
+[[Yellowstone Rebellion]]
 [[Knights of the Red Letter]]
 # Relationships
 [[Doyle Vance]]
-[[Erica Gray]]
-[[Douglas Q. Andersen]]
-[[Josiah Wake]]
-[[Wayne Redgrave]]
-[[Adelaide Cassius Modarian]]
+[[Cassidy Shaw]]
+[[Gorgeous Candor]]
+[[Danielle 'Mirage' Porter]]
 [[Morgan the Merciful]]
 # Connections To Plot / Current Goals
 

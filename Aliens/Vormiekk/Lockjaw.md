@@ -1,5 +1,6 @@
 > Call out for basic synopsis and flavour text
 
+A [[Vormiekk]] leader.
 # Abilities
 
 # History

@@ -3,7 +3,7 @@
 # Abilities
 
 # History
-[[The Yellowstone Rebellion]]
+[[Yellowstone Rebellion]]
 [[Knights of the Frost]]
 [[Blackwood Morticians]]
 # Relationships

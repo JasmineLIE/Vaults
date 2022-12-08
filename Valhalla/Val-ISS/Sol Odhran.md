@@ -27,6 +27,7 @@
 [[Solarian]]
 [[Rebel Hanuko]]
 [[Mercedes Covenant]]
+[[Aster Galileo]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

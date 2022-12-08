@@ -11,6 +11,8 @@
 [[Kaneko Torashirou]]
 [[Anton Kozak]]
 [[Karakayenne]]
+[[Aster Galileo]]
+[[Martholomew 'Marty' McKnight]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

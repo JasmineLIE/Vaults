@@ -34,6 +34,7 @@
 [[Eakarn]]
 [[Byron Tammerce]]
 [[Temperance 'Constance' Chandler]]
+[[Lucky Danger]]
 
 # Connections To Plot / Current Goals
 

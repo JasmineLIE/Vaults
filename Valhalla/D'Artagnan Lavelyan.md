@@ -3,7 +3,9 @@
 # Abilities
 
 # History
+They enlistened in [[Sacrament]].
 
+They were present at the [[Yellowstone Rebellion]]
 # Relationships
 [[Danielle 'Mirage' Porter]]
 [[Aitne Odhran]]

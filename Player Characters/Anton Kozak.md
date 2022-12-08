@@ -3,10 +3,16 @@
 # Abilities
 
 # History
+## Pre-Dreamscourge
+
+Was a participant in the [[Human-Nuuric War]].
+
 [[The Wandering Wraith]]
 # Relationships
+## [[Laloon]]
+## [[Aster Galileo]]
+## [[Martholomew 'Marty' McKnight]]
 
 # Connections To Plot / Current Goals
 
-# Reference Images / Visual InspirationRelationships
-## [[Lovely 'Galahad' Weather]]
+# Reference Images / Visual Inspiration
