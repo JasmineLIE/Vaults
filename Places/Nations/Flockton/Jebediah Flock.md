@@ -1,0 +1,1 @@
+The religious leader of [[Flockton]], and father to [[Meredith 'Merry' Odhran]].

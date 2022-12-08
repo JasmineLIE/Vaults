@@ -1,0 +1,1 @@
+One of many [[Dream Entities]]. Created [[Solarian]] from [[Rebel Hanuko]] and [[Lunarion]]. Leader of the [[Halcyon Crusade]].

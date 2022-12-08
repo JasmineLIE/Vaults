@@ -1,0 +1,1 @@
+Originally created by [[Psioch]] as a display for their mental recreation technology, JFK-2 was shelved for centuries-- until the [[New Union]] reactivated him.

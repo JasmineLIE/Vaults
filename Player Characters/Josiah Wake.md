@@ -8,7 +8,7 @@
 # Relationships
 [[Harper 'Longshot' Madison]]
 [[Cherche Winters]]
-[[Wayne Redgrave]]
+[[Josiah Wake]]
 [[Douglas Q. Andersen]]
 [[Laloon]]
 [[Run-For-Your-Life]]
@@ -19,3 +19,11 @@
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration
+
+# Appearances
+
+[[Session 0.2 - From the Red Grave]]
+[[TA03 - Valhallan Memories]]
+[[Session 0.5 - Stretch's Guide to Good Living]]
+[[TA08 - Not in a Longshot]]
+

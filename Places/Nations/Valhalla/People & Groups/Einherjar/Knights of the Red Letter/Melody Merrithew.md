@@ -1,0 +1,1 @@
+One of many [[Psirens]] in [[Tevis Gray]]'s employ. Was eventually killed by [[Logan Scythia Trevors]] during [[The Last One]].

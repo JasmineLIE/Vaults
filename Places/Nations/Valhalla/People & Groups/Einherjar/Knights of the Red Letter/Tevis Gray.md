@@ -10,7 +10,7 @@
 [[Erica Gray]]
 [[Douglas Q. Andersen]]
 [[Josiah Wake]]
-[[Wayne Redgrave]]
+[[Josiah Wake]]
 [[Adelaide Cassius Modarian]]
 [[Morgan the Merciful]]
 # Connections To Plot / Current Goals

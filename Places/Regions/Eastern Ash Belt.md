@@ -1,0 +1,1 @@
+An industrial hellscape with orange skies and choking air, populated mostly by raiders and [[Harvester]]s.

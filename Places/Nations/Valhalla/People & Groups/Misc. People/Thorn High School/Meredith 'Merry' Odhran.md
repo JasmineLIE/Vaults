@@ -5,3 +5,4 @@
 [[Scarborough]]
 [[DuFont]]
 [[Lorelei]]
+[[Thorn High School]]

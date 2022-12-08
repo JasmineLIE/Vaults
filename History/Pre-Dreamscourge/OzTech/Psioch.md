@@ -1,0 +1,1 @@
+A [[Pre-Dreamscourge]] company responsible for psionic technologies. Had large pillars tapping into the [[Unknown Ganymede Wishing Whale]] on [[Ganymede]]. Owned by [[OzTech]].

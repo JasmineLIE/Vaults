@@ -18,6 +18,6 @@
 [[Adelaide Cassius Modarian]]
 [[The Mads]]
 
-[[Wayne Redgrave]] (aff.)
+[[Josiah Wake]] (aff.)
 [[Jason Phoenix]] (aff.)
 [[Natasha 'Breach' Promise]] (aff.)

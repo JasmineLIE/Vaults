@@ -1,0 +1,1 @@
+The very first captain of the [[The Wandering Wraith]]. Was friends with [[Edward 'Blackbeard' Teach]].
