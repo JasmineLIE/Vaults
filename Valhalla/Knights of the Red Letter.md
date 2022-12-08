@@ -8,7 +8,8 @@
 
 [[D'Artagnan Lavelyan]] (aff.)
 
-[[Halcyon Crusade]]
+[[Halcyon Crusade]] (aff.)
+[[Sable Seguerro]] (aff.))
 
 
 ## Tevis Chapter Members & Affiliates

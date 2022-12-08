@@ -4,7 +4,7 @@
 
 # History
 [[Galanova]]
-[[Aitne Odhran's Arrival]]
+During [[Aitne Odhran's Arrival]], she was resurrected on [[Ariel]].
 # Relationships
 [[Sol Odhran]]
 [[Cordelia Odhran]]
