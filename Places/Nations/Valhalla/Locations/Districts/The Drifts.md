@@ -1,0 +1,1 @@
+[[The Fridge]] and the [[Stormwardens]] are located here.

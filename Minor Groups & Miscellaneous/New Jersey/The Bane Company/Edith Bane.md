@@ -12,7 +12,7 @@ She uses her drone as an umbrella to protect herself from the toxic rain.
 # History
 Edith is the daughter of the chemist lead for [[Baroness Couture]].  He died in The Alamo Few's raid, where an explosion from The Wickerman's bombs crushed him under debris.  When the [[Pinelands Water Facility]] was leant over to the people, she watched greed swindle out of control again.
 
-Craving order and prosperity, Edith created The Bane Company.  First, she presented herself as a businesswoman looking to expand the future of New Jersey's people.  New Jersey's air was toxic-- a product of the Scourge leaving remnants of war to rot the environment.  Her products filtered the air and enriched the quality of life for many.  She offered work to anyone who needed it.  She offered under-the-counter toxins to anyone who wanted it.
+Craving order and prosperity, Edith created The Bane Company.  First, she presented herself as a businesswoman looking to expand the future of the people living in the [[New Jersey Pine Barrens]].  New Jersey's air was toxic-- a product of the Scourge leaving remnants of war to rot the environment.  Her products filtered the air and enriched the quality of life for many.  She offered work to anyone who needed it.  She offered under-the-counter toxins to anyone who wanted it.
 
 Then, when she had built enough reputation, she seized control of the [[Pinelands Water Facility]] without much hassle.  People adored and supported her.  But the greed she condemned as a young woman came for her, too.  Now, she has the economy in a vice grip-- nothing goes or happens without her say.  She punishes outspoken communities by leaving their water unfiltered or infusing it with chemicals that are not harmful to humans, but eat away at crops.
 
