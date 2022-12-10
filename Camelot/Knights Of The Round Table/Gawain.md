@@ -1,0 +1,7 @@
+- Helped Merlin get Galahad back from Nimue
+- Despite this, Gawain is chivalrous, a romantic, and holds family high above all -- because of their virtues, they antagonize Arthur
+- Still, they are a capable knight, and has been gifted to Edith should she need Gawain's help. Gawain is never happy about this, but complies
+- Gawain has some formidable magicks, mainly because of the rose in them
+- They can recognize Lovely's and Merlin's magicks, too.
+- Gawain is an uncle-figure to Galahad
+- Arthur is aware of Gawain's flimsy opinion on eternal servitude, and opts to just send them to do errands
