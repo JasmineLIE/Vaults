@@ -1,1 +1,1 @@
-The former Water Baroness who reigned New Jersey.  She was killed by [[Alamo Few]] and [[Cherche Winters]] in their assault on the [[Pinelands Water Facility]].
+The former Water Baroness who reigned New Jersey.  She was killed by [[Alamo Few]] and [[Cherche Winters]] in their assault on the [[Pinelands Water Facility (Central Hub)]].
