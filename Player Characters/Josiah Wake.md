@@ -18,6 +18,8 @@ He currently resides within [[Valhalla]].
 [[Anton Kozak]]
 [[Jason Phoenix]]
 [[Adelaide Cassius Modarian]]
+## [[Angelo of Sparta]]
++ Has a subconscious hate for as Wayne, stole the encryption key 
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration
