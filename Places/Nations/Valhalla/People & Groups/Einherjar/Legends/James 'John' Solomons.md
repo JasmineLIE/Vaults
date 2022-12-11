@@ -12,7 +12,7 @@ Remains affiliated with [[Valhalla]].
 [[Dullahan]]
 [[Tevis Gray]]
 [[Serekk]]
-[[Fiona 'Cleo' Lionheart]]
+[[Cleo 'Fiona' Lionheart]]
 
 # Connections To Plot / Current Goals
 

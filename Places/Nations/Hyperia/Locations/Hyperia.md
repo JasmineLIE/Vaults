@@ -2,7 +2,7 @@
 
 Hyperia. "The Eternal Kingdom," some call it. Others a Garden of Inequity, where the wealthy drink deep of ethereal wine and the poor eat of what emerges from the [[City of Beasts]].
 
-Their military and capital is within [[Sparta]].
+Their military and capital is within [[Sparta]]. [[Poseidon]] and the [[Secret Labs of Poseidon]] are greatest modern foe they face.
 
 Other cities include [[Korinthia]] and [[Chronopolis]].
 

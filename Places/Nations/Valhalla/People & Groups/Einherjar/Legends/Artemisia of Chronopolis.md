@@ -19,4 +19,4 @@ Founded [[Valhalla]]. Originated in [[Chronopolis]].
 [[Florentine]]
 [[Knights of the Frost]]
 [[Blackwood Morticians]]
-[[Fiona 'Cleo' Lionheart]]
+[[Cleo 'Fiona' Lionheart]]

@@ -1,0 +1,1 @@
+He resides within the [[Secret Labs of Poseidon]]. Utilized by [[Erica Gray]] as a proxy to weaken [[Hyperia]] from the inside.
