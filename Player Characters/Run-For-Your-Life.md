@@ -4,6 +4,7 @@
 
 # History
 
+She currently resides within [[Valhalla]].
 # Relationships
 [[Douglas Q. Andersen]]
 [[Laloon]]

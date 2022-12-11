@@ -4,6 +4,8 @@
 
 # History
 [[Oliver Oakley]]
+
+They reside within [[Valhalla]].
 # Relationships
 [[Gorgeous Candor]]
 # Connections To Plot / Current Goals

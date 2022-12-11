@@ -10,6 +10,8 @@
 [[Josiah Wake]]
 [[Memphis]]
 [[Hotshot]]
+
+He resides within [[Valhalla]].
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

@@ -1,3 +1,5 @@
+One of many [[Valhalla]]n Cape groups.
+
 Members
 
 [[Connie 'Spectrum' Grant]] (Leader)

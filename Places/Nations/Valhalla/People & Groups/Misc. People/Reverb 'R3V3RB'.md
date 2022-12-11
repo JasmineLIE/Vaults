@@ -9,7 +9,7 @@
 ## Einherjar
 
 ### Life in Valhalla
-Reverb clashed with [[Beatbabe]] several times, though it was largely one-sided.
+Reverb clashed with [[Beatbabe]] several times, though it was largely one-sided. [[Valhalla]].
 
 ### Anicca: Everglade
 Reverb met [[Douglas Q. Andersen]] at [[Luminosity]] during [[TA10 - Living Gorgeous]], where they were convinced to go and meet with [[Texas Ten Gallon]] and enter his employ.

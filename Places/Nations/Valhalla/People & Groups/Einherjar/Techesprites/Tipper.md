@@ -1,0 +1,1 @@
+[[Techesprite]]. Was taken care of by [[Loki]] before being assigned to [[Aitne Odhran]] as her pairbond.

@@ -3,7 +3,7 @@
 # Abilities
 
 # History
-
+He resides within [[Valhalla]].
 # Relationships
 [[Rhianna 'Quarterback' Stone]]
 [[The Mighty Five]]

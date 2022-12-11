@@ -3,7 +3,7 @@
 # Abilities
 
 # History
-
+He currently resides within [[Valhalla]].
 # Relationships
 [[Douglas Q. Andersen]]
 [[Laloon]]

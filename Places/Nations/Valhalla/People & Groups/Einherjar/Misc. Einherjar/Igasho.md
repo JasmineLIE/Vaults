@@ -4,6 +4,7 @@
 
 # History
 
+Resides within [[Valhalla]].
 # Relationships
 [[Run-For-Your-Life]]
 [[Gorgeous Candor]]

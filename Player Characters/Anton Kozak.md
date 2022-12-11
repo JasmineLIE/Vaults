@@ -9,6 +9,8 @@ Was a participant in the [[Human-Nuuric War]].
 
 [[The Wandering Wraith]]
 [[The Val-ISS Operation]]
+
+He currently resides within [[Valhalla]].
 # Relationships
 ## [[Laloon]]
 ## [[Run-For-Your-Life]]

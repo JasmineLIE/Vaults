@@ -5,6 +5,8 @@
 # History
 [[Galanova]]
 During [[Aitne Odhran's Arrival]], she was resurrected on [[Ariel]].
+
+She currently resides within [[Valhalla]].
 # Relationships
 [[Sol Odhran]]
 [[Cordelia Odhran]]

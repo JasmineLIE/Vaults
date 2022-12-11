@@ -5,6 +5,8 @@
 # History
 She was once in the employ of [[Galanova]].
 
+She currently resides within [[Valhalla]].
+
 [[The Songbirds Program]]
 # Relationships
 [[Pazmina Merrin]]

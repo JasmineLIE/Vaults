@@ -8,6 +8,8 @@
 Hotshot's first appearance was hunting down Khepri for the bounty alongside her sprite, [[Hammertime]], and [[Cobalt.]]
 ## [[Songbirds]]
 Hotshot was goaded into joining [[Sacrament]] by Cherche, but it didn't last.
+
+She resides within [[The Val-ISS Operation]].
 # Relationships
 [[Nadia Temurhad]]
 [[Cherche Winters]]

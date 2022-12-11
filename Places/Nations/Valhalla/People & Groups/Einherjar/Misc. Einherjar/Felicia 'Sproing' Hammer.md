@@ -7,6 +7,8 @@
 Best friend is [[Taylor]]. Currently attends [[Thorn High School]].
 
 [[Winters University]]
+
+Resides within [[Valhalla]].
 # Relationships
 
 # Connections To Plot / Current Goals

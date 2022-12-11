@@ -3,6 +3,8 @@
 # Abilities
 
 # History
+
+Resides within [[Valhalla]].
 # Relationships
 [[Annie 'Galaxy-Girl' May]]
 [[Trinity]]

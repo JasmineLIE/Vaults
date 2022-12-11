@@ -4,6 +4,7 @@
 
 # History
 
+Remains affiliated with [[Valhalla]].
 # Relationships
 [[Artemisia of Chronopolis]]
 [[Cherche Winters]]

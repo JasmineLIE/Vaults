@@ -1,1 +1,1 @@
-[[Felicia 'Sproing' Hammer]]'s best friend. Has a crush on [[Meredith 'Merry' Odhran]]. Goes to [[Thorn High School]].
+[[Felicia 'Sproing' Hammer]]'s best friend. Has a crush on [[Meredith 'Merry' Odhran]]. Goes to [[Thorn High School]]. Lives in [[Valhalla]].

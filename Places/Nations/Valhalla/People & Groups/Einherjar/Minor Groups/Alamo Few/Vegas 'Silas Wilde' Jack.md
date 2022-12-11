@@ -14,6 +14,7 @@
 [[Wickerman]]
 [[Cherche Winters]]
 [[Sol Odhran]]
+Once was affiliated with [[Valhalla]].
 ## Silas Wilde
 
 [[Lectro Vipers]] [[Arizona Hangmen]]

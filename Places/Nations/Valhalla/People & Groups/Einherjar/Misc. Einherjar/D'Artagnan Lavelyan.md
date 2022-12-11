@@ -6,6 +6,8 @@
 They enlistened in [[Sacrament]].
 
 They were present at the [[Yellowstone Rebellion]]
+
+They currently reside within [[Valhalla]].
 # Relationships
 [[Danielle 'Mirage' Porter]]
 [[Aitne Odhran]]

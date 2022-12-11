@@ -5,7 +5,7 @@
 * Laser Eyes
 # History
 ## [[Vormiekk Assault on Yggdrasil]]
-
+She resides within [[Valhalla]].
 # Relationships
 ## [[Alexander 'Power-Up' Phillips]]
  * In a relationship. Feels uneasy about it but is happy to be with someone who she thinks is actually in love with her
@@ -21,6 +21,8 @@
 * Thinks they're fine despite being an alien; doesn't like Luminoths much
 ## [[Run-For-Your-Life]]
 * Loves Run; thinks she's both a female icon and a trans icon and wants to help her as much as she can (especially in light of Igasho)
+## [[Florentine]]
+
 
 # Connections To Plot / Current Goals
 * Chief Cape of [[The Curve]]

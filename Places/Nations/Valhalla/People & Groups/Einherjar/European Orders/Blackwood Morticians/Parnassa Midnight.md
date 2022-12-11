@@ -3,6 +3,7 @@
 # Abilities
 
 # History
+Remains affiliated with [[Valhalla]].
 # Relationships
 [[Alexander 'Power-Up' Phillips]]
 [[Florentine]]

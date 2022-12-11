@@ -5,6 +5,8 @@
 # History
 [[Knights of the Red Letter]]
 [[The Songbirds Program]]
+
+He currently resides within [[Valhalla]].
 # Relationships
 [[Harper 'Longshot' Madison]]
 [[Cherche Winters]]

@@ -3,6 +3,7 @@
 # Abilities
 
 # History
+Resides within [[Valhalla]].
 # Relationships
 [[Run-For-Your-Life]]
 [[Laloon]]

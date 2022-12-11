@@ -1,0 +1,1 @@
+She remains affiliated with [[Valhalla]].

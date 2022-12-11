@@ -3,6 +3,10 @@
 # Abilities
 
 # History
+Tevis was one of many [[Warlord]]s in Europe.
+
+Was once a resident of [[Valhalla]].
+
 [[Yellowstone Rebellion]]
 [[Knights of the Red Letter]]
 # Relationships

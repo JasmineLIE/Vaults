@@ -3,6 +3,8 @@
 # Abilities
 
 # History
+
+Resides within [[Valhalla]].
 # Relationships
 [[Doyle Vance]]
 [[Gideon the Red]]

@@ -3,7 +3,7 @@
 # Abilities
 
 # History
-
+Resides within [[Valhalla]].
 # Relationships
 ## [[Cassidy Shaw]]
 ## [[Lovely 'Galahad' Weather]]

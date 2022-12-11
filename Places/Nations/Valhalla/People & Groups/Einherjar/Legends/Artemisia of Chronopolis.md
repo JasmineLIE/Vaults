@@ -1,3 +1,5 @@
+Founded [[Valhalla]]. Originated in [[Chronopolis]].
+
 [[Tevis Gray]]
 [[Erica Gray]]
 [[Doyle Vance]]

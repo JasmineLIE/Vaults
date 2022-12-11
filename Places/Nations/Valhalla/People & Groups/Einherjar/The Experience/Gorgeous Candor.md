@@ -12,7 +12,7 @@ Gorgeous Candor was originally made by [[Luminotron]] with the intention to crea
 
 ## Einherjar
 
-For the majority of their time in Valhalla, they were in the employ of [[Oliver Oakley]] in [[The Experience]]. They became quick friends with [[Danielle 'Mirage' Porter]] once she became a regular at [[Luminosity]].
+For the majority of their time in [[Valhalla]], they were in the employ of [[Oliver Oakley]] in [[The Experience]]. They became quick friends with [[Danielle 'Mirage' Porter]] once she became a regular at [[Luminosity]].
 
 Gorgeous, being such a big fan of the social life in Valhalla, has spent nights both at the bar and in the bed with much of the city, listening to the stories and lives of those around them. They're a big fan of [[Afterlife]], having appeared on nineteen episodes in the past.
 

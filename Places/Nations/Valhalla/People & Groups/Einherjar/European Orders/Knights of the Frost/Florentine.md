@@ -6,6 +6,8 @@
 [[Yellowstone Rebellion]]
 [[Knights of the Frost]]
 [[Blackwood Morticians]]
+
+Remains affiliated with [[Valhalla]].
 # Relationships
 [[Doyle Vance]]
 [[Erica Gray]]

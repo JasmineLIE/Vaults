@@ -5,6 +5,10 @@
 # History
 [[Yellowstone Rebellion]]
 [[Knights of the Red Letter]]
+
+[[The Songbirds Program]].
+
+She resides within [[Valhalla]].
 # Relationships
 [[Doyle Vance]]
 [[Cassidy Shaw]]

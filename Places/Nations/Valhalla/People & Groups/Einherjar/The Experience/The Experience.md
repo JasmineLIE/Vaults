@@ -1,4 +1,4 @@
-The entertainment group in Valhalla, thriving off of the joy and good faith of Valhalla's residents.
+The entertainment group in [[Valhalla]], thriving off of the joy and good faith of Valhalla's residents.
 
 The main source of its networking is [[Luminosity]]. Shortly after [[Gorgeous Candor]]'s takeover, they also took the [[Velvet Shuffleboard]] under their wing.
 

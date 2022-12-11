@@ -4,6 +4,8 @@
 
 # History
 [[The Luminoth King]]
+
+He currently resides within [[Valhalla]].
 # Relationships
 [[Run-For-Your-Life]]
 [[Josiah Wake]]

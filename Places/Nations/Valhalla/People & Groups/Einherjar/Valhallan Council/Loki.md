@@ -3,7 +3,7 @@
 # Abilities
 
 # History
-
+[[Valhalla]]
 # Relationships
 ## [[Vegas 'Silas Wilde' Jack]]
 * Once the star-crossed lover.

@@ -3,7 +3,7 @@
 # Abilities
 
 # History
-
+She resides within [[Valhalla]].
 # Relationships
 [[The Curve]]
 [[Trinity]]

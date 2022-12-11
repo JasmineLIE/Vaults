@@ -4,6 +4,8 @@
 
 # History
 [[The Harvests]]
+
+Remains affiliated with [[Valhalla]].
 # Relationships
 [[Erica Gray]]
 [[Tekton]]
