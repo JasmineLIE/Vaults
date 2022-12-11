@@ -27,7 +27,7 @@ After stealing Galahad by Arthur’s request from Nimue, he was tasked in raisin
 
 -   Has lived as long as Morgan thanks to his Magicks, undergoing different identities every era to blend in with humanity
 -   In 2893, he freed Lovely from the sleeping spell meant to protect him from Arthur.  
--   He hid Lovely’s body underneath a national museum as a means to convince Arthur that Lovely the Grail had killed him to dissuade her from seeking it out
+-   He hid Lovely’s body underneath a national museum as a means to convince Arthur that the grail had killed him to dissuade her from seeking it out
 -   He sent Lovely away to Valhalla to further protect him from Arthur, but with current events, that might not be so easy anymore…
 
 He is mind-broken by Arthur, but he doesn’t know it.  He believes he is immune, and that she believes he’s not.  The reality of it is; Arthur has Merlin on a kill-command which triggers him into obedience.  This command wipes his memory of the event every time.
