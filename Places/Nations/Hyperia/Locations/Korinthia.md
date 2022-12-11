@@ -1,0 +1,1 @@
+A city in [[Hyperia]], where [[Logan Scythia Trevors]] assassinated [[Melody Merrithew]].

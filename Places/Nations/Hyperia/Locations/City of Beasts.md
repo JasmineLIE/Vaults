@@ -1,0 +1,1 @@
+Once the city of Athens, the City of Beasts is where the [[Neo-Spartans]] go to train alongside [[Angelo of Sparta]]. Many times has a [[Minotaur]] or a [[Titan]] emerged from the great craters within the city, and many times they have been vanquished. The [[Cyclops]] Tribes managed to escape into the mountains, hiding away from their Hyperian enemies.
