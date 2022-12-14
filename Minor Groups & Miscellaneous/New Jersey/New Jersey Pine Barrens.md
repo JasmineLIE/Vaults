@@ -1,0 +1,3 @@
+The New Jersey Pine Barrens is home to a small gathering of businesses and civilization.  Water Barons have streaked its history, and for a brief moment, following the killing of [[Baroness Couture]] by the hands of the [[Alamo Few]] and [[Cherche Winters]], New Jersey affairs was handled by the people.
+
+In recent times, [[Edith Bane]] and her company have seized control, and the classist cycle born anew.

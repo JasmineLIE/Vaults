@@ -1,0 +1,1 @@
+Built around a water facility, the Central Hub is a thriving city of scrappy luxury, booming business, and fortune.  Currently, it is controlled by [[Edith Bane]].  The Central Hub is heavily walled off-- access  is properly gained through the front gates where identification is cleared.

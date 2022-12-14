@@ -1,0 +1,1 @@
+Jaded, Doralamin is [[Archdruid Slàine Ernudec]]'s second in command, who stepped up as Archdruid following her abduction and assumed death.  He thinks New Jersey is a lost cause-- itself having stolen too much from them, and is considering returning the Devil Callers to the main [[Florida Chapter of the Knights of NASA]].  

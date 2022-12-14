@@ -1,0 +1,3 @@
+Sheelvong is a young initiate of the Devil Callers.  She was born into it, but both her parents were lost to a Dream Gate, and so [[Archdruid Slàine Ernudec]] raised her.  She is spunky, but well-meaning, and accepts no one else to be her Archdruid.
+
+After learning that [[Arcdruid Dorlamin]] intends to return to the main chapter, Sheelvong tasks herself with a grand mission; "I will find the Archdruid myself, and sooth the New Jersey Devil of its sorrow!"
