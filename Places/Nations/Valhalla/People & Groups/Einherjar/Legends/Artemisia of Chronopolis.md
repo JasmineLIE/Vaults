@@ -1,4 +1,4 @@
-Founded [[Valhalla]]. Originated in [[Chronopolis]].
+An Einherjar from the [[1st Age]]. Founded [[Valhalla]]. Originated in [[Chronopolis]].
 
 [[Tevis Gray]]
 [[Erica Gray]]

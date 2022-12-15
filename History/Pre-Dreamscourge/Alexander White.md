@@ -4,7 +4,10 @@
 
 # History
 [[Pre-Dreamscourge]]
+The creation of [[Yggdrasil]], [[Ashvattha]], [[Gaokerena]], and the [[World Tree Prototype]].
 [[Judgment]]
+
+Utilizing the [[Cosmic Lance]], Alexander White was able to slingshot he and his science teams to [[Judgment]].
 # Relationships
 [[Pazmina Merrin]]
 [[James 'John' Solomons]]

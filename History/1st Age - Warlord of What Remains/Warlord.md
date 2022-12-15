@@ -7,3 +7,4 @@ Warlords of the [[1st Age]] and beyond would include:
 [[Dullahan]]
 [[Erica Gray]]
 [[Tevis Gray]]
+[[Nasir, the Dream's Bane]]
