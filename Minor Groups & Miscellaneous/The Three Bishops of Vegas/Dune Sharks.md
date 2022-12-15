@@ -1,0 +1,3 @@
+Led by Maia Wyle, the Dune Sharks are a raider gang that champions liberty through firepower.  Heroes to the poor, the Dune Sharks watch out for smaller communities and give people a purpose and place.  They are among the Three Bishops due to their manpower and their stock of weapons salvaged from an old-world military base. ![](https://lh5.googleusercontent.com/5RMTxzPezYyz-2YjSCO3CecsZUXZqf6BdrEt0EHjZY5zd9LwTQDYvzuiTm3mR9sGNDH9ft3Z6h_r4KiybF7Wam6W8GilMcYZqEcCiqyQu3rbcJO33sW6Z49dxsIry7w6OHnfwinLSKk7BCY15tpG8ZmWix5xhE7gShJEsmANQgiK0xJlopL7LGtpim9c)
+
+They mostly keep to themselves and seek compromise when expanding their territory.  Though recently, they’ve bristled with the Silver Caravan in hopes of gaining access to the Cold Creek springs.
