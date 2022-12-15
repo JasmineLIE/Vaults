@@ -17,6 +17,7 @@ He currently resides within [[Valhalla]].
 ## [[Kaneko Torashirou]]
 ## [[Josiah Wake]]
 ## [[Douglas Q. Andersen]]
+## [[Vic Vaughn]]
 ## [[Aster Galileo]]
 ## [[Martholomew 'Marty' McKnight]]
 ## [[Logan Scythia Trevors]]
