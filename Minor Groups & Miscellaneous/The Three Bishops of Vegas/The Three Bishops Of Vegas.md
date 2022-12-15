@@ -1,1 +1,1 @@
-A group of notable faction entities in Vegas, consisting of [[Dune Sharks]], [[The Silver Caravan]] and [[Fair Lady]]
+A group of notable faction entities in Vegas, consisting of [[Dune Sharks]], [[The Silver Caravan]] and [[Fair Lady]].  Opposed to [[Halcyon Crusade]]
