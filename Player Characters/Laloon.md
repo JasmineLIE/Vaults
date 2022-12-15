@@ -12,6 +12,7 @@ He currently resides within [[Valhalla]].
 [[Douglas Q. Andersen]]
 [[Kaneko Torashirou]]
 [[Anton Kozak]]
+[[Vic Vaughn]]
 [[Karakayenne]]
 [[Aster Galileo]]
 [[Martholomew 'Marty' McKnight]]
