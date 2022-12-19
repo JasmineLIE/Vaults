@@ -2,4 +2,4 @@ Slàine has led the Devil Callers for decades, believing in restoring the natura
 
 She raised [[Initiate Sheelvong Kavanaugh]] like her own daughter.
 
-[[Arcdruid Dorlamin]] is her trusted confidant.
+[[Archdruid Dorlamin]] is her trusted confidant.
