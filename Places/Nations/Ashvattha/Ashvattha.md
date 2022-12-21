@@ -1,0 +1,1 @@
+An underground world tree located at the center of [[Jupiter]] that can only be accessed through the Great Red Spot. The [[Immortal]]s
