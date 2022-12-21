@@ -1,6 +1,6 @@
 > Call out for basic synopsis and flavour text
 
-A [[Vormiekk]] leader.
+A [[Vormiekk]] leader and ally to [[Valhalla]].
 # Abilities
 
 # History

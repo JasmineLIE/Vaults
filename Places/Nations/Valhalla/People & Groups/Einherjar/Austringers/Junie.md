@@ -1,0 +1,1 @@
+Rescued [[Kaneko Torashirou]].

@@ -1,5 +1,6 @@
 > *"It is Logan—Logan Trevors. Though, most refer to me as one of those two denominators.*"
 
+Their techesprite is [[LaFaye]].
 # Abilities
 
 # History
