@@ -1,4 +1,4 @@
-Protagonist - [[Douglas Q. Andersen]]
+Protagonist - [[Douglas Q. Andersen]] (no. 2)
 Preceded By - [[TA09 - A Lucky Run-In]]
 Succeeded By - [[TA11 - Run's Talk]]
 
