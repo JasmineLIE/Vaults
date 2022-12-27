@@ -7,3 +7,4 @@ Capes under their perview are:
 [[Alexander 'Power-Up' Phillips]]
 [[Sundance]]
 [[Raelica 'Heavensent' Danse]]
+[[Vic 'Nightshift' Vaughn]]

@@ -22,6 +22,8 @@ She resides within [[Valhalla]].
 ## [[Run-For-Your-Life]]
 * Loves Run; thinks she's both a female icon and a trans icon and wants to help her as much as she can (especially in light of Igasho)
 ## [[Florentine]]
+## [[Vic 'Nightshift' Vaughn]]
+
 
 
 # Connections To Plot / Current Goals
