@@ -3,8 +3,10 @@
 # Abilities
 
 # History
-[[Galanova]]
-During [[Aitne Odhran's Arrival]], she was resurrected on [[Ariel]].
+## [[Galanova]]
+She was turned into a [[Dark Dryad]].
+## [[Aitne Odhran's Arrival]]
+She was resurrected on [[Ariel]].
 
 She currently resides within [[Valhalla]].
 # Relationships

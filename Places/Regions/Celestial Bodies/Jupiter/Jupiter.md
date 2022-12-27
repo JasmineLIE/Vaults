@@ -1,0 +1,1 @@
+A planet in the [[Sol System]]. One of many [[Celestial Bodies]] in the [[Sol System]].

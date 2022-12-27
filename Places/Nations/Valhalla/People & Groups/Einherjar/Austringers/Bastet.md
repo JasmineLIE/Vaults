@@ -1,1 +1,1 @@
-He resides within [[Valhalla]].
+[[GEN-2]]. He resides within [[Valhalla]].

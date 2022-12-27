@@ -8,7 +8,7 @@ The current presiding individual over The Experience. They rule with a leather-g
 
 ## Pre-Dreamscourge
 
-Gorgeous Candor was originally made by [[Luminotron]] with the intention to create a new line of mass-produced sexbots known as Gorgeous Can-Do, but had accidentally been given too much free will and as such developed sentience. As the executives fell in love with their new darling, they became a [[Pre-Dreamscourge]] celebrity. 
+Gorgeous Candor was originally made by [[Luminotron]] as a [[GEN-2]] with the intention to create a new line of mass-produced sexbots known as Gorgeous Can-Do, but had accidentally been given too much free will and as such developed sentience. As the executives fell in love with their new darling, they became a [[Pre-Dreamscourge]] celebrity. 
 
 ## Einherjar
 

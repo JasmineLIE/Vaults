@@ -3,6 +3,7 @@
 # Abilities
 
 # History
+[[GEN-2]]
 [[Alamo Few]]
 [[Bulldogs]]
 [[Battle of the Alamo]]

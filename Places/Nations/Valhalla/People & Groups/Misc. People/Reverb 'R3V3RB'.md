@@ -6,6 +6,8 @@
 ## Pre-Dreamscourge
 [[GEN-2 Civil Rights Movement]]
 
+One of the most famous [[GEN-2]].
+
 ## Einherjar
 
 ### Life in Valhalla
