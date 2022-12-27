@@ -1,0 +1,1 @@
+An asteroid belt in the [[Sol System]]. Home to many of the greater [[Silent Banner-Frontiersmen Conflicts]].

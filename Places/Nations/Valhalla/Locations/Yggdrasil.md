@@ -1,0 +1,1 @@
+The colossal tree located at the center of [[Valhalla]]. Its custodian is [[Loki]].
