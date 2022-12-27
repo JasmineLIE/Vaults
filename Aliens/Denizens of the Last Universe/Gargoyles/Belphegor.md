@@ -1,0 +1,1 @@
+A [[Gargoyle]] who attempted to harness the power of the [[Vormiekk]] homeworld, but was torn apart by the nascent Vormiekk. His intestines came to life shortly after.
