@@ -13,7 +13,7 @@ He currently resides within [[Valhalla]].
 [[Run-For-Your-Life]]
 [[Kaneko Torashirou]]
 [[Anton Kozak]]
-[[Vic Vaughn]]
+[[Vic 'Nightshift' Vaughn]]
 [[Seethrough]]
 [[Cherche Winters]]
 ## [[Gorgeous Candor]]

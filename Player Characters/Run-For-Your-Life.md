@@ -11,7 +11,7 @@ She currently resides within [[Valhalla]].
 [[Run-For-Your-Life]]
 [[Kaneko Torashirou]]
 [[Anton Kozak]]
-[[Vic Vaughn]]
+[[Vic 'Nightshift' Vaughn]]
 [[Uriyah Zidan]]
 [[Lovely 'Galahad' Weather]]
 [[Hotshot]]

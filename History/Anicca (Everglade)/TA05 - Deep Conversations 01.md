@@ -1,5 +1,5 @@
-Features:
+Protagonist - [[Laloon]]
+Preceded By - [[TA04 - Igasho's Playground]]
+Succeeded By - [[TA06 - Whistleblower]]
 
-[[Erica Gray]]
-[[Laloon]]
-[[Thürexx]]
+Tags: [[Erica Gray]], [[Laloon]], [[Thürexx]], [[Karakayenne]]

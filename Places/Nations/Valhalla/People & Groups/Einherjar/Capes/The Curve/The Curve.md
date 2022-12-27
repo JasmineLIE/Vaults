@@ -6,4 +6,4 @@ Capes under their perview are:
 [[Trinity]]
 [[Alexander 'Power-Up' Phillips]]
 [[Sundance]]
-[[Heavensent]]
+[[Raelica 'Heavensent' Danse]]

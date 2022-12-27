@@ -1,13 +1,5 @@
-Features:
+Protagonist - [[Douglas Q. Andersen]]
+Preceded By - [[TA09 - A Lucky Run-In]]
+Succeeded By - [[TA11 - Run's Talk]]
 
-[[Douglas Q. Andersen]]
-[[Gorgeous Candor]]
-[[Reverb 'R3V3RB']]
-[[Alexander 'Power-Up' Phillips]]
-[[Tony Calavera]]
-
-With minor appearances from
-[[Cassidy Shaw]]
-[[Uriyah Zidan]]
-[[Cherche Winters]]
-[[Erica Gray]]
+Tags: [[Douglas Q. Andersen]], [[Gorgeous Candor]], [[Reverb 'R3V3RB']], [[Alexander 'Power-Up' Phillips]], [[Tony Calavera]], [[Cassidy Shaw]], [[Uriyah Zidan]], [[Cherche Winters]], [[Erica Gray]], [[Raelica 'Heavensent' Danse]]
