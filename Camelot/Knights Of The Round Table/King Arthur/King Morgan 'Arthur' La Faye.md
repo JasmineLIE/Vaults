@@ -1,0 +1,2 @@
++ Arthur is alive because of her and [[Mordred]]'s battle in [[Avalon]], where both their wills were matched and overwhelmed the Dream, creating a fork, where Arthur was both killed and won.
++ Arthur seeks to end the fork so she can be freed from Avalon and return to the material plane to rule.  In this case, the fight between Mordred and Arthur continues in a loop.
