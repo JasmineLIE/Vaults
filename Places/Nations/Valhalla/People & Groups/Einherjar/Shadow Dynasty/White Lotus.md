@@ -1,1 +1,1 @@
-Affiliated with [[Valhalla]]. Was wiped by [[Memphis]].
+A [[GEN-2]]. Affiliated with [[Valhalla]]. Was wiped by [[Memphis]].

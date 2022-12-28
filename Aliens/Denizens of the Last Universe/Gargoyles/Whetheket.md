@@ -1,1 +1,1 @@
-A [[Gargoyle]] world that hosted billions of denizens, destroyed by [[Urm]]'s whisper.
+A [[Gargoyle]] world that hosted billions of denizens, destroyed by [[Urm]]'s whisper. Before its destruction, it was ruled by [[Zagan]].

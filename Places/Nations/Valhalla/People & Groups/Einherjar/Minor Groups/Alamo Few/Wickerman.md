@@ -3,7 +3,7 @@
 # Abilities
 
 # History
-Wickerman was a member of the [[Alamo Few]], alongside [[Maddox]], [[Vegas 'Silas Wilde' Jack]], [[Happy Appomattox]], and [[Marcus Thorn]], which formed around pushing a campaign to push the [[Bulldogs]] out of San Antonio during the second [[Battle of the Alamo]].
+A [[GEN-2]], Wickerman was a member of the [[Alamo Few]], alongside [[Maddox]], [[Vegas 'Silas Wilde' Jack]], [[Happy Appomattox]], and [[Marcus Thorn]], which formed around pushing a campaign to push the [[Bulldogs]] out of San Antonio during the second [[Battle of the Alamo]].
 
 Later, they waged petty war against a religious einherjar tyrant named [[Dervish]].
 

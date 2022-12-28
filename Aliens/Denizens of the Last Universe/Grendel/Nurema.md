@@ -1,5 +1,6 @@
 ## Appearances
 [[The Cycle of Woe Part I]]
+[[The Cycle of Woe Part III]]
 
 ## The Cycle of Woe
 

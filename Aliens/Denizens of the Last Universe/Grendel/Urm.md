@@ -1,6 +1,7 @@
 ## Appearances
 [[The Cycle of Woe Part I]]
 [[The Cycle of Woe Part II]]
+[[The Cycle of Woe Part III]]
 
 ## The Cycle of Woe
 
@@ -10,6 +11,8 @@ When the Anicca was threatening to destroy the universe, he went to the edge of 
 
 He later used the wishbone to resurrect [[Nugammon]] and [[Nuvok]] when they were slaughtered by [[Gestalt]], reading of the [[Esoterica]] alongside [[Dantalion]] as the migration began.
 
+[[Dantalion]] wrote his death into every universe, ensuring that Urm could not survive his own death.
+
 ## Present Day
 
-Urm's ultimate state is unknown, but his heart was shaped into the Holy Grail.
+With Urm's death, his heart was shaped into the Holy Grail.

@@ -3,7 +3,7 @@
 # Abilities
 
 # History
-
+A [[GEN-2]].
 Resides within [[Valhalla]].
 # Relationships
 [[Run-For-Your-Life]]

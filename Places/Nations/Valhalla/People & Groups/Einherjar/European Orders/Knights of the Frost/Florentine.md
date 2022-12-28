@@ -3,6 +3,7 @@
 # Abilities
 
 # History
+[[GEN-2]]
 [[Yellowstone Rebellion]]
 [[Knights of the Frost]]
 [[Blackwood Morticians]]

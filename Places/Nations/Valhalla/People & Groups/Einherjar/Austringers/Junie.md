@@ -6,7 +6,7 @@
 # Abilities
 + Junie is a combat medic.  She can provide medical aid on the battlefield whilst comandeer a trench gun.
 # History
-
+[[GEN-2]]
 # Relationships
 ## [[James 'John' Solomons]]
 + Junie meets John for the first time after the usurption of [[Edith Bane]].  Now that he has returned to Valhalla, she hosts temporary shelter (her Austringer dorm) for him.  She sees a respectacble leader figure in him.

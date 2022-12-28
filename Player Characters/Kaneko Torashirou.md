@@ -9,7 +9,7 @@ He currently resides within [[Valhalla]].
 [[Laloon]]
 [[Run-For-Your-Life]]
 [[Anton Kozak]]
-[[Vic Vaughn]]
+[[Vic 'Nightshift' Vaughn]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration
