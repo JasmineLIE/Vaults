@@ -1,0 +1,1 @@
+A dwarf planet located in the [[The Asteroid Belt]] within the [[Sol System]]. Home to [[Lockjaw]]'s crew.

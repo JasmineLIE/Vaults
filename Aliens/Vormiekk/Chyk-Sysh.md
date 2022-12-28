@@ -1,0 +1,1 @@
+A form of meditation practiced by [[Vormiekk]].

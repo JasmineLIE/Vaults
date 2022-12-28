@@ -1,4 +1,6 @@
-This is for a CLASSIC TEXT ADVENTURE.
+Protagonist - [[Aitne Odhran]] (no. 3)
+Preceded By - [[CTA03 - Permafrost]]
+Succeeded By - [[CTA05 - Songbirds]]
 
 [[Gideon the Red]]
 [[Khepri]]

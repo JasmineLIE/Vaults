@@ -1,0 +1,1 @@
+A creature native to [[Hyperia]], originating from the [[City of Beasts]].

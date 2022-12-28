@@ -1,0 +1,1 @@
+A group of necromancers once native to [[The Middle-East]]. They were led by [[Nasir, the Dream's Bane]] with [[Aisha]] and [[Hakan]] as his second-in-commands prior to their dissolution at the hands of [[Cherche Winters]].

@@ -1,0 +1,1 @@
+The [[Halcyon Crusade]] resides on a satellite directly orbitting The Sun.

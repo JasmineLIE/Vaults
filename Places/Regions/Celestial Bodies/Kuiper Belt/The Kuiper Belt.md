@@ -1,0 +1,1 @@
+An asteroid belt in the [[Sol System]]. Home to [[Pluto]], [[Eris]], [[Makemake]], and [[Sedna]].

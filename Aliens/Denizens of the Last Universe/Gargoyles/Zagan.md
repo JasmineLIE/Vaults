@@ -1,0 +1,1 @@
+The [[Gargoyle]] ruler of [[Whetheket]] before its destruction by [[Urm]].

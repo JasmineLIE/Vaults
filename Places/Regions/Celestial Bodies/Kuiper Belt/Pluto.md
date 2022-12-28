@@ -1,0 +1,1 @@
+A dwarf planet in the [[Sol System]]. Host to [[Gaokerena]]. Has five moons: [[Charon]], Nix, Styx, Kerberos, and Hydra.

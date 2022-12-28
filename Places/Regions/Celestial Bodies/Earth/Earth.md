@@ -1,0 +1,1 @@
+A planet in the [[Sol System]]. The cradle of humanity and home of [[Yggdrasil]], [[Valhalla]], [[Hyperia]], the [[New Union]], so on so forth.
