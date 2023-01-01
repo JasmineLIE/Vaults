@@ -8,4 +8,4 @@ Dantalion was advisor to [[Gestalt]] on the Cherubim [[Spirit World]]. He did no
 
 ## Present Day
 
-Dantalion is present in the Sol System, but his exact whereabouts are currently unknown.
+Dantalion is present in [[Valhalla]] as a supermodel, bumming out in [[Gorgeous Candor]] guest room.
