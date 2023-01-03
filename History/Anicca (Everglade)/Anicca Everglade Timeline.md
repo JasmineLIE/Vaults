@@ -59,6 +59,6 @@
 * [[Session 2.0 - The Bane of New Jersey]]
 * [[Session 2.1 - The Bane of New Jersey II]]
 #### November 17th
-* [[TA14 - DePowering-Up]]
+* [[TA13 - DePowering-Up]]
 #### November 18th 
 * [[Session 3.0 - Igasho's Battleground]]
