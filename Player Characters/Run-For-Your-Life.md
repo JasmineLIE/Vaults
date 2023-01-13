@@ -20,7 +20,7 @@ She currently resides within [[Valhalla]].
 [[Igasho]]
 [[Brianna Bailey]]
 [[Alexander 'Power-Up' Phillips]]
-[[Trinity]]
+[[Tracy 'Trinity' Mayleigh]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

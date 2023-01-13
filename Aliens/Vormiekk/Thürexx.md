@@ -9,7 +9,7 @@ A [[Vormiekk]] leader and ally to [[Valhalla]].
 [[Lockjaw]]
 [[Turinahm]]
 [[Lockjaw]]
-[[Trinity]]
+[[Tracy 'Trinity' Mayleigh]]
 # Connections To Plot / Current Goals
 
 # Reference Images / Visual Inspiration

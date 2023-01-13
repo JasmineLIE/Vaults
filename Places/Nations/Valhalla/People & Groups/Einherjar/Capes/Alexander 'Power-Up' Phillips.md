@@ -7,7 +7,7 @@ Resides within [[Valhalla]].
 # Relationships
 [[Run-For-Your-Life]]
 [[Laloon]]
-[[Trinity]]
+[[Tracy 'Trinity' Mayleigh]]
 [[Parnassa Midnight]]
 [[Walk-of-Fame]]
 # Connections To Plot / Current Goals

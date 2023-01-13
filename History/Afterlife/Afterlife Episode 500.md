@@ -4,4 +4,4 @@ Next Episode: [[Afterlife Episode 501]]
 
 Host: [[Brianna Bailey]]
 Guest: [[Laloon]]
-Surprise Guest: [[Trinity]]
+Surprise Guest: [[Tracy 'Trinity' Mayleigh]]

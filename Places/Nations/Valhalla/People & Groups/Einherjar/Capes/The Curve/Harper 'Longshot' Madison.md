@@ -6,7 +6,7 @@
 She resides within [[Valhalla]].
 # Relationships
 [[The Curve]]
-[[Trinity]]
+[[Tracy 'Trinity' Mayleigh]]
 [[Josiah Wake]]
 
 # Connections To Plot / Current Goals

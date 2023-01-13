@@ -62,3 +62,26 @@
 * [[TA13 - DePowering-Up]]
 #### November 18th 
 * [[Session 3.0 - Igasho's Battleground]]
+#### November 19th
+* [[Session 3.5 - Who is Vic Vaughn?]]
+#### November 20th
+* [[TA21 - One Late Night]]
+#### November 21th
+* [[TA15 - Cardiff Calling]]
+#### November 22th
+* [[Session 4.0 - Beyond the Mirror]]
+* [[TA19 - Rekindled Heart]]
+#### November 23rd 
+* [[TA20 - As Friends Do]]
+#### November 24th
+* [[TA22 - Wandering Son]]
+* [[TA23 - March's First Day]]
+#### November 25th 
+* [[Session 5.0 - Hunting Season]]
+* [[TA24 - Imminent Doom]]
+
+#### November 26th 
+
+#### November 27th
+
+#### November 28th 

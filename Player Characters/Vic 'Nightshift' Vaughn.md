@@ -2,4 +2,4 @@ Former member of [[Lobos de la Luna]], the 'Wolves of the Moon.' Went undercover
 
 Spoke in an interview with [[Lovely 'Galahad' Weather]].
 
-[[The Curve]], [[Trinity]], [[Raelica 'Heavensent' Danse]], [[Catastrophica]]
+[[The Curve]], [[Tracy 'Trinity' Mayleigh]], [[Raelica 'Heavensent' Danse]], [[Catastrophica]]

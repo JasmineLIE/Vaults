@@ -7,7 +7,7 @@
 Resides within [[Valhalla]].
 # Relationships
 [[Annie 'Galaxy-Girl' May]]
-[[Trinity]]
+[[Tracy 'Trinity' Mayleigh]]
 [[Lucky Danger]]
 [[Igasho]]
 [[Run-For-Your-Life]]
