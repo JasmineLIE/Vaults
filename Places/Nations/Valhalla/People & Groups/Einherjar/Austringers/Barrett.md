@@ -1,0 +1,1 @@
+A member of the [[Austringers]] who was killed by [[Sedit]].

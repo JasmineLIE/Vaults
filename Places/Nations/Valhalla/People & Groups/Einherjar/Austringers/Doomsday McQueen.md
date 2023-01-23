@@ -1,0 +1,1 @@
+Member of the [[Austringers]]; blamed by [[Erica Gray]] for the death of [[Barrett]]. Sponsored by [[Cassidy Shaw]].

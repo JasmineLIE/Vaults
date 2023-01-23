@@ -1,0 +1,1 @@
+Friend to [[Anton Kozak]] and [[Doomsday McQueen]].

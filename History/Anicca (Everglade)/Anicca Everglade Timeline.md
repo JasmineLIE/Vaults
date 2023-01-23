@@ -71,17 +71,18 @@
 #### November 22th
 * [[Session 4.0 - Beyond the Mirror]]
 * [[TA19 - Rekindled Heart]]
-#### November 23rd 
+#### November 23rd
 * [[TA20 - As Friends Do]]
 #### November 24th
 * [[TA22 - Wandering Son]]
 * [[TA23 - March's First Day]]
-#### November 25th 
+#### November 25th
 * [[Session 5.0 - Hunting Season]]
 * [[TA24 - Imminent Doom]]
-
-#### November 26th 
-
+#### November 26th
+[[TA25 - Midnight Crawl]]
 #### November 27th
-
-#### November 28th 
+[[TA26 - Run-For-Your-Love]]
+[[TA28 - Trouble in Paradise]]
+#### November 28th
+[[TA32 - To Dine For]]
