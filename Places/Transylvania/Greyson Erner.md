@@ -1,0 +1,1 @@
+Raised under [[Lucien Dragos]]'s rule, Greyson once challenged the King for his throne over Transylvania.  Fascinated by his wit, cockiness, and advisor-like qualities, Lucien proposed to Greyson a spot beside him.  A spot as his [[Heartsworn]].  Greyson eagerly accepted.

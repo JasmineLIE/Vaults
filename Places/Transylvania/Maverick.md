@@ -1,0 +1,3 @@
+A [[Knights of the Frost]] who had gone missing soon after [[Dullahan]] quelled the [[Icemen]].  He mentioned tracking the man responsible for the death of his husband-- the one who left him as nothing but skin and bone, drained of blood.  He was never seen again after venturing east of Europe.  
+
+In truth, he lost against [[Lucien Dragos]], who appealed to Maverick's sympathy, and was forcibly turned into a [[Heartsworn]].

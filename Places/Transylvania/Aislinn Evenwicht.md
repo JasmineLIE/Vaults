@@ -1,0 +1,1 @@
+[[Heartsworn]] to [[Lucien Dragos]].  She is his magick counselor; a witch who fell in love with his ambition.  With his blood running through her veins, along with her magick, she wields power unseen.  She revels in cleaning up Lucien's messes.

@@ -1,0 +1,3 @@
+She who found [[Lucien Dragos]] after he was banished from Valhalla, bloodied and bruised. She nursed him back to full health and they travelled together.  She was there to soothe him through his vampiric turning, and to support him in all his descisions.  She loved him, but his heart belonged to prophecy, and she accepted it sorrowfully.
+
+When Ezra was wounded after a violent altercation, Lucien turned her into a [[Heartsworn]] to save her life.  Now, she is bound to him for eternity, and stands as his closest confidante out of all the Heartsworn.  She was there when he first founded his Kingdom of Transylvania. 
