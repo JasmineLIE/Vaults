@@ -1,0 +1,3 @@
+Found at the brink of death, his body burnt by Balefire, [[Lucien Dragos]] found interest in Delta's rage and misery.  He saw potential-- someone who could match Ezra in strength, but without emotional connection or depth.
+
+While the [[Heartsworn]] vampiric transformation restored his life, Delta still suffers from Balefire burns.  They easily can reupt into flames, too, if he comes into contact with high-density Dream.  He is a man of little words with a large, bottomless well of primal desire for violence and pleasure.
